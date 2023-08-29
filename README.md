@@ -25,3 +25,4 @@ proof of scam:
 https://cdn.discordapp.com/attachments/1145776701603852378/1146156717198020720/image.png
 https://cdn.discordapp.com/attachments/1145776701603852378/1146156197108523088/image.png
 https://cdn.discordapp.com/attachments/1145776701603852378/1146158341425471599/image.png
+https://cdn.discordapp.com/attachments/1145776701603852378/1146158928053424231/image.png
